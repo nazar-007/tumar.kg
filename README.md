@@ -1,1 +1,0 @@
-# tumar.kg
